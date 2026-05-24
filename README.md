@@ -43,5 +43,7 @@ Passionate DevOps Engineer with knowledge of:
 
 ## 📫 Connect With Me
 
-- LinkedIn: Add Your LinkedIn Link
-- Email: yourmail@gmail.com
+- LinkedIn: www.linkedin.com/in/
+avinashkumar1345
+
+- Email: avinashkumarsingh1346@gmail.com
